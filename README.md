@@ -1,1 +1,1 @@
-# InfiniteTrexforKid
+# InfiniteT-RexwithCamera
